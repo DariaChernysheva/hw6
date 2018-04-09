@@ -1,4 +1,4 @@
-[google docs](https://docs.google.com/document/d/1gRup3Kl97c0vuPDSPdct3hWiLXqTdgZdBSvibyub4tI/edit)
+[google docs](https://docs.google.com/document/d/1gRup3Kl97c0vuPDSPdct3hWiLXqTdgZdBSvibyub4tI/edit)- графики
 
 
 График №1 
