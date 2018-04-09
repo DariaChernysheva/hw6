@@ -9,3 +9,4 @@
 
 График №3
 ![](https://github.com/DariaChernysheva/hw6/blob/master/%D0%B3%D1%80%D0%B0%D1%84%D0%B8%D0%BA%203.jpg)
+![](https://github.com/DariaChernysheva/hw6/blob/master/%D0%B3%D1%80%D0%B0%D1%84%D0%B8%D0%BA3.3.jpg)
